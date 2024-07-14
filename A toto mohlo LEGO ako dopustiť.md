@@ -1,4 +1,4 @@
-# >>A toto mohlo LEGO ako dopustiť<<
+# A toto mohlo LEGO ako dopustiť #
 to akože majú dôkazy? Alebo je to len indoktrinácia jediným pohľadom na svet a to, že Zem je guľatá? Bol niekto z vás vo vesmíre? Lebo ja nie. 
 
 Prázdniny začali. Je čas odpočinúť si od školy. Platí pre deti aj pre rodičov. Neznamená to ale, že by sme mali poľaviť vo vzdelávaní a v podporovaní zvedavosti. Budem to robiť naďalej, len teraz počas dvoch mesiacov inak. Osnovy určujem ja v spolupráci s deťmi. Formu určujem ja tiež v spolupráci s deťmi. 
@@ -14,7 +14,8 @@ Možno sa udeje, že nás postupne „sedľijacki rozum“ prevalcuje a budeme m
 Poznámka pod 〰️
 Teším ma, že k našim aktivitám sa pridávajú aj deti zo susedstva. Neraz k nám zablúdi aj dospelák. Pokračujeme. 
 
-![](A%20toto%20mohlo%20LEGO%20ako%20dopusti%C5%A5/IMG_9993.jpeg)
+
+![1719679533685](https://github.com/user-attachments/assets/77198bca-a2d1-4467-aa2d-255e80e847eb)
 
 
 
